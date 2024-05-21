@@ -24,3 +24,5 @@
 ![guts](https://moewalls.com/wp-content/uploads/2024/03/guts-lone-warrior-berserk-monochrome-thumb.jpg)
 
 this theory file has been reviewed by **Brieuc de Goussencourt**
+
+this theory file has been reviewed by the one and only **Leonardo Fountas**
